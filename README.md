@@ -1,3 +1,4 @@
 # faisal
 # output
-![image](https://user-images.githubusercontent.com/118586784/202836008-51acc553-1481-4d33-8166-c699b659ee69.png)
+https://user-images.githubusercontent.com/118586784/202844021-8bed8e19-44bc-4e35-b452-81f4d2b052b4.mp4
+
